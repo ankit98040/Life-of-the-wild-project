@@ -1,1 +1,0 @@
-# Life-of-the-wild-project
